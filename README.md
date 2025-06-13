@@ -1,0 +1,1 @@
+# equa-o-do-2-grau
